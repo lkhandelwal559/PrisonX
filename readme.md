@@ -93,7 +93,7 @@ To explore our E-Portal for Under Trial Prisoners, simply visit our website []
 
 ## Support
 
-If you have any questions or need assistance, contact our support team at support@undertrialportal.com.
+If you have any questions or need assistance, contact our support team at lkhandelwal559gmail.com
 
 Thank you for being a part of this initiative to empower undertrial prisoners!
 
